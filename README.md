@@ -1,6 +1,6 @@
-
-![ezgif-6-37b03c6ec1](https://github.com/hy011121/CryptSite/assets/75035965/9eb876ab-4074-42e7-9d46-9f1ca7b7fa30)
-  <a href="https://vimeo.com/922262322">
+![ezgif-6-37b03c6ec1](https://github.com/hy011121/CryptSite/assets/75035965/5538c4dc-b2fc-4e69-abe6-9eeb1d31ea67)
+  <a href="https://vimeo.com/922262![Uploading ezgif-6-37b03c6ec1.gif…]()
+322">
     <img src="https://img.shields.io/badge/%20VIDEO%20Demo%20AVAILABLE%20HERE-blue?style=for-the-badge" alt="Video Demo Available Here" />
   </a>
 
